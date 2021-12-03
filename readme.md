@@ -1,1 +1,1 @@
-Xin chao thay va cac ban!
+Xin chao cac ban!
